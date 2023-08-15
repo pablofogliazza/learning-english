@@ -1,4 +1,6 @@
-### Learning English with me.
+### Learning Englis.
+Notes on my language learning.
+
 
 ## Second Conditional: if + past, would / wouldn't + infinitive
 
